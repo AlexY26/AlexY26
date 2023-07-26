@@ -1,0 +1,4 @@
+- Hi, I’m Alex Yule | Kingy
+- I’m interested in Programming using Unreal / Unity
+- I'm currently studying 3D Animation and Game Development @Coleg Llandrillo
+- You can reach me @alex_y26 on Twitter, @kingyvi on Discord
